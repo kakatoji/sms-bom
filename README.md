@@ -1,2 +1,2 @@
 # bom-sms-all
-Thx To SGB TEAM
+Thx To IGC team
